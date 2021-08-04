@@ -5,7 +5,7 @@
 
 
 
-- 🌱 Eu estou estudando **A.D.S**
+- 🌱 Eu estou cursando **A.D.S**
 
 - ⚡ Fato engraçado **Café parou de fazer efeito 😅**
 
